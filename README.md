@@ -1,5 +1,5 @@
 # 💫 About Me:
-EEE Undergraduate | Technology Enthusiast | Bridging hardware and software through engineering and technology
+EEE Undergraduate | Bridging hardware and software through engineering and technology
 
 Reach out me at:nikhithagowda.n091@gmail.com
 
